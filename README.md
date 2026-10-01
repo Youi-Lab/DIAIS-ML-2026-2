@@ -19,4 +19,6 @@ https://us02web.zoom.us/rec/share/0A3EBKr2tnzXZH0IH_WPIC1HvIg70haYgSok-MNq4VCnzJ
 
 Passcode: F97$Atz$
 
+## Clase lunes 1 de octubre
 
+Passcode:
