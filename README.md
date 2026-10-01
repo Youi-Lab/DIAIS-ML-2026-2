@@ -8,6 +8,12 @@ Meeting ID: 885 1484 1213
 
 Passcode: 928444
 
+
+## Carpeta de resúmenes de proyectos terminales
+
+https://drive.google.com/drive/folders/1_scWMWd4Ns9GUstShQZfYDdR-2inGAUs?usp=sharing
+
+
 ## Clase lunes 28 de septiembre
 https://us02web.zoom.us/rec/share/0A3EBKr2tnzXZH0IH_WPIC1HvIg70haYgSok-MNq4VCnzJDvDszYRSVNMNhYEpRf.HeKYu05VtuJX-Hrn
 
