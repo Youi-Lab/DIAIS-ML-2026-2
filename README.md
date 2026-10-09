@@ -28,3 +28,9 @@ https://us02web.zoom.us/rec/share/FVGVh89xuqjMZkl4qSFgyWjQpnpq32ZducMXDAx4Xe0IlR
 
 Passcode: 5&R&1hty
 
+## Clase lunes 8 de octubre
+
+https://us02web.zoom.us/rec/share/CGHfMTwC_-08vpuHJO_N6zcxtlEZCQoUK84sKPxISetUdDiO2cf0la5bAPxrXHSo.hEqBz-LSJEzG8bWG 
+
+Passcode: m&3$tq.s
+
