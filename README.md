@@ -34,3 +34,9 @@ https://us02web.zoom.us/rec/share/CGHfMTwC_-08vpuHJO_N6zcxtlEZCQoUK84sKPxISetUdD
 
 Passcode: m&3$tq.s
 
+## Clase lunes 13 de octubre
+https://us02web.zoom.us/rec/share/GCF2TVJFJhImgsUDx6MaFQ3PLx_t5osXp6AHOcYj8NSE4fD1heSbOCel7ecPKXXD.0M7G9_HM32vmKyzE
+
+Passcode: !c3PENu3
+
+
