@@ -18,25 +18,25 @@ https://us02web.zoom.us/rec/share/0A3EBKr2tnzXZH0IH_WPIC1HvIg70haYgSok-MNq4VCnzJ
 
 Passcode: F97$Atz$
 
-## Clase lunes 1 de octubre
+## Clase jueves 1 de octubre
 https://us02web.zoom.us/rec/share/D50DLDFknmY7BswQRWYgKFw-yT0k0PteESFG0zKXCnaV0sVJ_FAoEOIl0XqND4Cj.nL-TDlrwbtfBXVXc
 
 Passcode: N4Ws?EfI
 
-## Clase lunes 6 de octubre
+## Clase martes 6 de octubre
 https://us02web.zoom.us/rec/share/FVGVh89xuqjMZkl4qSFgyWjQpnpq32ZducMXDAx4Xe0IlR4lktqboHhYWpvmP59y.Z00vEKVP14NDKK66
 
 Passcode: 5&R&1hty
 
-## Clase miércoles 8 de octubre
+## Clase jueves 8 de octubre
 
 https://us02web.zoom.us/rec/share/CGHfMTwC_-08vpuHJO_N6zcxtlEZCQoUK84sKPxISetUdDiO2cf0la5bAPxrXHSo.hEqBz-LSJEzG8bWG 
 
 Passcode: m&3$tq.s
 
-## Clase lunes 13 de octubre
+## Clase martes 13 de octubre
 https://us02web.zoom.us/rec/share/GCF2TVJFJhImgsUDx6MaFQ3PLx_t5osXp6AHOcYj8NSE4fD1heSbOCel7ecPKXXD.0M7G9_HM32vmKyzE
 
 Passcode: !c3PENu3
 
-
+## Clase jueves 15 de octubre
