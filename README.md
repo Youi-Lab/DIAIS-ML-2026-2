@@ -42,3 +42,16 @@ https://us02web.zoom.us/rec/share/GCF2TVJFJhImgsUDx6MaFQ3PLx_t5osXp6AHOcYj8NSE4f
 Passcode: !c3PENu3
 
 ## Clase jueves 15 de octubre
+https://us02web.zoom.us/rec/share/wo3l3E2VIYuIKfkvcaYed3EUfCghUy6kMemrz91u7WSdWtBl9CUkJvGsOC1G3ReW.q0rLHZa0SCfE5ZCI
+
+Passcode: +juHQ5vP
+
+## Clase martes 20 de octubre
+https://us02web.zoom.us/rec/share/OCHZQiW3Sd4D0fXArKNTSw8VtkBMnqp192RZVMoaXXdaIM85GSDQyPC-gSFkc50p.W27N-pDKsjTyFuM3
+
+Passcode: *z2CFAdN
+
+
+
+
+
