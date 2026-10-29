@@ -51,7 +51,10 @@ https://us02web.zoom.us/rec/share/OCHZQiW3Sd4D0fXArKNTSw8VtkBMnqp192RZVMoaXXdaIM
 
 Passcode: *z2CFAdN
 
+## Clase martes 27 de octubre
+https://us02web.zoom.us/rec/share/DDakPpnIVcTVVobQ63IFXaHOunO2y6W8-aeY9j0aIDv2FR5flYojon0-w7cmKQwa.7GfSXmF1aAIeeTpN
 
+Passcode: A4.QgS@i
 
 
 
