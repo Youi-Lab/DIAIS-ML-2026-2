@@ -62,6 +62,9 @@ https://us02web.zoom.us/rec/share/eFku5eybhm9xccBTD9KAkYb0A-UjNj10Ktougrs6Wn66RV
 Passcode: cD^kK2h3
 
 ## Clase martes 3 de noviembre (20)
+https://us02web.zoom.us/rec/share/q3WhFiwufBe96MW_IWfk5Y2k0gq-A3XaJZd_is2HY-u1yaJyoOmPfej8CUY4fBH_.NYbzvAuPZK9DPx2E
+ 
+Passcode: P2cW@Tnp
 
 ## Clase martes 5 de noviembre (22)
 
