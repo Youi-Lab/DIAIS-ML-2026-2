@@ -73,7 +73,7 @@ Passcode: pSQ$r8xD
 
 ## Clase martes 10 de noviembre (24)
 
-## Clase martes 12 de noviembre (26)
+## Clase jueves 12 de noviembre (26)
 
 ## Clase martes 8 de diciembre (28)
 
