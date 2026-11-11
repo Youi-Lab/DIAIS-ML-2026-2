@@ -72,6 +72,9 @@ Passcode: P2cW@Tnp
 Passcode: pSQ$r8xD
 
 ## Clase martes 10 de noviembre (24)
+https://us02web.zoom.us/rec/share/ucaIvIpEGWWdkOS6v-h3jjkM2tJUxi8me0pAxiLGDB1RBIjG4WXQUaeEz18AugU8.CdLSCJ8CviHuTFHU
+
+Passcode: Ao@%2q@B
 
 ## Clase jueves 12 de noviembre (26)
 
